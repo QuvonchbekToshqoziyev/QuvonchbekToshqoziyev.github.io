@@ -1,1 +1,0 @@
-# QuvonchbekToshqoziyev.github.io
